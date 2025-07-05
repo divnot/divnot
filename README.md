@@ -1,5 +1,5 @@
 # 💫 About Me:
-indi techno<br>web developer<br>web-developer<br>#coffee#technopath 
+indi techno<br>web-developer<br>Founder-workdower<br>#coffee#technopath 
 
 
 ## 🌐 Socials:
